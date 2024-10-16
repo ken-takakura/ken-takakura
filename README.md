@@ -1,36 +1,8 @@
 ⠀⠀
-<div align="left">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀
-⣠⠞⠉⠉⠳⠴⠀⠀⠀⠀⠀⠀
-<div align="left">
-⠀⠀⠀⠀⣠⡾⠋⠉⠲⡏⠀⠀⠀⠀⠀⠀⠀⠀⠙⠋⠉⠛⢶⡄⠀
-<div align="left">⠀
-⠀⠀.⣰⡏⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢸⣇⣀⣀⠀⠀
-<div align="left">
-⢠⡾⠋⠀⠁⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠙⣷⡀
-<div align="left">
-⢸⡇⠀⠀⠀⠀⠀⠀naruto ultimate     ‎ ‎ ‎ ‎ ‎ ‎ ‎  ⠀   ⠀⢀⡾⠃
-<div align="left">
-⠈⣻⠄⠀⠀⠀⠀⠀ninja storm 4  ⠀‎ ‎ ‎ ‎ ‎ ⠀⠀    ⠀⠐⢯⡀⠀
-<div align="left">
-⢰⣯⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⣼⠇⠀
-<div align="left">
-⠀⠙⠷⣤⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢠⡇⠀⠀⠀
-<div align="left">
-⠀⠀⠀⢿⣆⠀⠀⠀⠀⠀⠀⠀⠀⢀⠀⠀⠀⠀⠀⠀⢀⡖⠒⠛⠁⠀⠀⠀
-<div align="left">
-⠀⠀⠀⠀⠙⠓⠒⠛⠳⠦⠤⠤⠖⠉⠳⢤⣄⣀⣤⡴⠟⠁⡔⠂⠒⡄⠀
-<div align="left">⠀
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠈⠐⠊⢱⠁⣢
-
 <p align="center">
-<img src="https://i.ibb.co/vkqvLVw/s-l500-37-99d3c698-2c0d-4f32-be6b-5e6ee32df8f6-500x500-removebg-preview.png"/>
+<img src="https://platform.polygon.com/wp-content/uploads/sites/2/2024/09/DAN-DA-DAN-Trailer-Still-%C2%A9Yukinobu-Tatsu_SHUEISHA-DANDADAN-Production-Committee-2.jpg?quality=90&strip=all&crop=0%2C3.4613147178592%2C100%2C93.077370564282&w=1200"/>
 </p>
 
-
 <div align="center">
 
-dni freaks dni sakura haters dni sasusaku bashers
-
-<div align="center">
-  
-[rentry](https://rentry.co/kdar) ; [atabook](https://sasuke.atabook.org) ; [strawpage](https://sabakunogaara.straw.page)
+[RENTRY](https://rentry.co/kdar) ; [ATABOOK](https://sasuke.atabook.org) ; [STRAWPAGE](https://sabakunogaara.straw.page)
